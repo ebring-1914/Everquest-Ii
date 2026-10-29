@@ -228,4 +228,4 @@ EverQuest II is available as a **full free version** with **all features** and *
 Get ready to embark on an unforgettable adventure in Norrath! **Download EverQuest II free today and join the adventure!**
 
 ---
-**Last updated:** 2026-10-29 03:59:48 UTC
+**Last updated:** 2026-10-29 10:49:27 UTC
